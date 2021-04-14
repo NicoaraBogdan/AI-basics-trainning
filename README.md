@@ -1,0 +1,1 @@
+# AI-basics-trainning
